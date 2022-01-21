@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MarcW-Cheil
+- 👀 I’m a Product Owner at Cheil Germany
+- 💞️ I’m using this account to collaborate with client devs
+- you can find me on LinkedIn
